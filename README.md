@@ -1,0 +1,1 @@
+It was fun learning new animation trick while designing a site of one my favorite cartoons
